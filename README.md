@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning:how to do coding and i'm learning japanese
 - 💞️ I’m looking to collaborate on
 - :im not looking for any collaborates :)
-- 📫 How to reach me: face or any
+- 📫 How to reach me: facebook or any
 -  other social medias 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i can breathe underwater for 10 minutes
